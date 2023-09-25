@@ -9,4 +9,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 kailan.ferreira@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/ready-to-shoot-jett-valorant-ready-to-open-fire-in-position-gif-4351713815206285974)
+![](https://media.tenor.com/d0G4fEr0BW0AAAAd/valorant-character.gif)
