@@ -9,4 +9,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 kailan.ferreira@escola.pr.gov.br
 
-![](https://media.tenor.com/d0G4fEr0BW0AAAAd/valorant-character.gif)
+![](https://media.tenor.com/WsdWav-T_pgAAAAC/jett-duel-krinex.gif)
